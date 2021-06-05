@@ -9,5 +9,5 @@ Feel free to connect with me on [LinkedIn!](https://www.linkedin.com/in/ashley-b
 I am looking for full-time oppotunites!
 
 
-⚡ Fun fact: ...I am a total Lord of the Rings nerd! 
+⚡ Fun fact: ...I am a total Lord of the Rings nerd!! 
 
